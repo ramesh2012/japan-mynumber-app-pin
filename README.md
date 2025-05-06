@@ -1,0 +1,1 @@
+# japan-mynumber-app-pin
